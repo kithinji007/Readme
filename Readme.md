@@ -7,5 +7,3 @@
 ⚡ Open for roles in Data Science, Machine Learning, NLP and Computer Vision.
 
 📫 How to reach me email: tonnykithinji52@gmail.com# Readme.md
-# Readme
-# Readme
