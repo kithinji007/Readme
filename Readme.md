@@ -6,4 +6,4 @@
 
 ⚡ Open for roles in Data Science and Machine Learning
 
-📫 How to reach me email: tonnykithinji52@gmail.com# Readme.md
+📫 How to reach me email: tonnykithinji52@gmail.com
